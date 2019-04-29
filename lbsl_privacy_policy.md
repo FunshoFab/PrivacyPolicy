@@ -1,4 +1,4 @@
-## Privacy Policy
+## LBSL Privacy Policy
 
 Touch and pay technologies built the LBSL app as a Free app. This SERVICE is provided by Touch and pay technologies at no cost and is intended for use as is.
 
